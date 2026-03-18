@@ -4,7 +4,7 @@
 Email Me 👉 ✉️ **debasishpradhan826@gmail.com.com** For Collaboration/Project or Anything Else. 😊😊
 
 - 🔭 **I’m currently working on:** 
-- 🌱 **I’m currently learning:** DtaScience
+- 🌱 **I’m currently learning:** Fullsatck Developer
 - 👯 **I’m looking to collaborate on:**debasishpradhan826@@gmail.com
 - 🤔 **I’m looking for help with:** Your project here
 - 💬 **Ask me about:** debasishpradhan826@gmail.com
