@@ -10,7 +10,7 @@ Email Me 👉 ✉️ **debasishpradhan826@gmail.com.com** For Collaboration/Proj
 - 💬 **Ask me about:** debasishpradhan826@gmail.com
 - 📫 **How to reach me:**  debasishpradhan826@gmail.com
 - 😄 **Pronouns:** Imran Sir
-- ⚡ **Fun fact:** I Love Tech and Tech Love Me
+- ⚡ **Fun fact:** I Love Tech and Tech Love me
 
 - 
 ## 🌐 Socials:
